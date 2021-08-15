@@ -19,6 +19,4 @@ tgvh
  ngvj
  hgvj
  gvj
- fygcyhg
- gjnh gjnhhj 
  
